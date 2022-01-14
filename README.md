@@ -1,1 +1,1 @@
-# gamechugc.github.io
+<h1><center>GameChu iz here!
